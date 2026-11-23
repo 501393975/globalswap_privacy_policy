@@ -1,0 +1,2 @@
+# globalswap_privacy_policy
+globalswap_privacy_policy
